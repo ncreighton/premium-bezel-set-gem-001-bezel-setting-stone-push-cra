@@ -1,0 +1,2 @@
+# premium-bezel-set-gem-001-bezel-setting-stone-push-cra
+Tired of guessing bezel depths and stone push angles only to end up with wasted metal and cracked gems? The Bezel Setting &amp; Stone Push Craft Lab turns your Notion into a precision planning studio for flawless settings.  This template eliminates the costly trial-and-error of bezel setting by providing a structured digital lab to calculate dimensions
